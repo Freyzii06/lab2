@@ -1,1 +1,1 @@
-https://zolkevskiu.github.io/wildy/
+https://freyzii06.github.io/lab2/
